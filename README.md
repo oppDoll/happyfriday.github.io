@@ -1,0 +1,1 @@
+# happyfriday.github.io
